@@ -66,4 +66,4 @@ If you have any questions or feedback, feel free to reach out to us at [enamsatu
 
 ---
 
-Thank you for using yusafolio! We hope you enjoy creating and sharing your personalized link page.
+Thank you for visiting yusafolio! We hope you enjoy.
